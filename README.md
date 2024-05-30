@@ -1,1 +1,1 @@
-# bpro
+yandex-front.nomorepartiesco.ru
